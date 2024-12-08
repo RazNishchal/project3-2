@@ -1,1 +1,1 @@
-delete hunxa yo xitai. so download quickly
+dari ko bala yehi ho hai !
